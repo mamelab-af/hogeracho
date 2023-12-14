@@ -1,0 +1,2 @@
+# hogeracho
+Yo! Hogeracho!
